@@ -1,5 +1,5 @@
 ## Hi there 👋
--💡 Currently studying in Islington College
+-💡 Currently studying in Islington College 📍[https://maps.app.goo.gl/5Z6z4r9tFQbUo9j7A]
 
 -⛏️ Currently acciquring knowlege to develop various things
 
